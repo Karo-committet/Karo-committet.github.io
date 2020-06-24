@@ -19,3 +19,5 @@ Im Laufe der Zeit findet Usagi heraus, dass sie die Wiedergeburt von Prinzessin 
 
 Während Usagi anfangs noch das normale Schulmädchen von nebenan ist, das am liebsten den ganzen Tag nur Süßigkeiten isst, Mangas liest und Verantwortung scheut, entwickelt sie sich im Laufe der Zeit zu einer starken Kämpferin. Dennoch bringt ihr weiches Herz sie manchmal an ihre Grenzen:
 > If a soldier’s pride means hurting one another, I don’t want it. - Usagi Tsukino
+
+<img src="https://vignette.wikia.nocookie.net/sailor-moon/images/6/6a/Usagi-0.jpg/revision/latest?cb=20160903213621&path-prefix=de"/>
