@@ -16,3 +16,6 @@ Im Laufe der Zeit findet Usagi heraus, dass sie die Wiedergeburt von Prinzessin 
 * sehr offen und findet schnell neue Freunde
 * isst sehr gern, kocht aber schlecht
 * schläft viel
+
+Während Usagi anfangs noch das normale Schulmädchen von nebenan ist, das am liebsten den ganzen Tag nur Süßigkeiten isst, Mangas liest und Verantwortung scheut, entwickelt sie sich im Laufe der Zeit zu einer starken Kämpferin. Dennoch bringt ihr weiches Herz sie manchmal an ihre Grenzen:
+> If a soldier’s pride means hurting one another, I don’t want it. - Usagi Tsukino
